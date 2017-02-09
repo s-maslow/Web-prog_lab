@@ -1,3 +1,5 @@
 # Web-prog_lab
 this trash is deeper then you can imagine
-sooooooo
+sooooooo.........
+ как-то всё в git'е сложнааа
+ 
